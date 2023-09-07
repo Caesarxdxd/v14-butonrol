@@ -1,1 +1,1 @@
-# v14-butonrol
+# Sa hacı öncelikle buraya hoş geldin altyapı bana ait değil bilgine Airfaxdan aldım bak altını çizerek diyorum __ALTYAPI BANA AİT DEĞİLDİR__ İZİNSİZ ALMAYIN BAŞINIZ BELAYA GİRER BEN İZİN ALDIM BOT YAPTIGIM İCİN BURAYA YÜKLÜYORUM BURDANDA GLİTCHDE KULLANIYORUM
